@@ -1,0 +1,1 @@
+This recipe is a about, how to prepare a spicy and taste chicken curry very easily at home. 
